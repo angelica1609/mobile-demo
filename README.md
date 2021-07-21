@@ -28,6 +28,7 @@ Kelas 2D
 22. 361955401113 - Dewinta Dinda Prastika
 23. 361955401114 - Nella Bidayatus Sa'adah
 24. 361955401115 - M Arsya Pratama
+25. 361955401116 - Aldona Angelica Syafira
 
 Kelas 2E
 
